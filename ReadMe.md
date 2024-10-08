@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi!, My name is Asriqul Hardi. i'm currently working at home as a freelancer. 
+<b>Hi!, My name is Asriqul Hardi. i'm currently working at home as a freelancer.</b>
 
 
 ## 🌐 Socials:
