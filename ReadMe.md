@@ -1,5 +1,5 @@
 # 💫 About Me:
-Home<br>Google<br>MyFriends<br>JavaScripts <br><br>Gojo kebelah Dua
+Hi!, My name is Asriqul Hardi. i'm currently working at home as a freelancer. 
 
 
 ## 🌐 Socials:
